@@ -1,8 +1,8 @@
-<code style="color: lightskyblue"> Treasury of Delos بنك </code>
+<code style="color : lightskyblue"> Treasury of Delos بنك </code>
 
 ![bank](/art/synagogue.jpeg)
 
-<code style="color: lightskyblue"> star </code>
+<code style="color : lightskyblue"> star </code>
 
 ![bank](/art/starPreview2.jpeg)
 
