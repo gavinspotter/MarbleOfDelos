@@ -24,4 +24,4 @@ Psalm 68:13 Even if you lie down among the sheepfolds, there are wings of a dove
 
 ![bank](/art/bottomRightTriangle.jpeg)
 
-![bank](/art/bottomTriangle.jpeg)
+![bank](/art/bottomTriangle.JPG)
