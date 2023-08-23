@@ -12,7 +12,6 @@ Psalm 68:13 Even if you lie down among the sheepfolds, there are wings of a dove
 ‭‭</code>
 <br/>
 <br/>
-
 <code style="color: lightskyblue"> Treasury of Delos بنك </code>
 
 ![bank](/art/synagogue.jpeg)
