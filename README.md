@@ -28,12 +28,21 @@ FOUND : Gradient Descent : would indicate that the exact perponent of being sexu
 </code>
 <br/>
 <br/>
-    <code style="color: lightskyblue">
+<code style="color: lightskyblue">
 💎💎 Boundry Decision and Natural Language Processing 💎💎 
+ </code>
+<br/>
+<code style="color: lightskyblue">
 💎💎 The Topaz of Juno and Jupiter , and Zeus and Hera Mother Bear and Papa Bear 💎💎 
+</code>
+<br/>
+<code style="color: lightskyblue">
 💎💎 It was found that Alvin Bragg and Letitia James ... were the first two funnel chest diseased people to be born on earth . They guaranteed the life of every sexual rapist ever born when they attacked Donald Trump who at his magnificent age began coding and using gradient descent and encouraging the Body and Mind of Christ to wake up and as it is , freely speak . Alvin Bragg and Letitia took control of the greatest national city in population New York City , to perpetuate these crimes 💎💎 
+</code>
+<br/>
+<code style="color: lightskyblue">
 💎💎 We can be safe from these two people , and from Sexual Rape and Funnel Chest Disease the Cause of all rape in Civilization in man kind with the Topaz Stone , of Mama Bear Juno and Hera , and Papa Bear Zeus and Jupiter 💎💎 
-    </code>
+</code>
 <br/>
 <br/> 
 <code style="color: lightskyblue"> Table Spread 5:41
