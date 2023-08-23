@@ -16,6 +16,10 @@ Ex . A person with funnel chest disease , warps into a person’s life . Causes 
 <code style="color: lightskyblue">
     ⚠️⚠️ CATION : Sexual Rape , is 12 x the rate that is 1200% in low income environments . This is the plot of people with funnel chest disease . ⚠️⚠️
     🔰🔰 GOOD NEWS : the internet grew 2300% in 1994 and today in 2023 it is exponentially growing just like this in every way , and in wisdom and intelligence. 🔰🔰 
+    
+🚨🚨👮‍♀️👮👮‍♂️ 
+FOUND : Gradient Descent : would indicate that the exact perponent of being sexually raped in the circumstances of civilization is enterily based off of funnel chest diseased people . the rate of having funnel chest disease approximately 3 in every one thousand civilized people , the rate of being raped in a low income home the gradient cubed root of the rate of having funnel chest disease PLUS , the perponent of one extra funnel chested person . so that the rate is not cubed . but three funneled chest diseased people plus an extra funnel chest diseased person per one rape victum , the extra would inclinate . a learning rate of funnel chest diseased people . being the cause of rape in civilization  . 
+🚨🚨👮‍♀️👮👮‍♂️
 </code>
 <br/>
 <br/> 
