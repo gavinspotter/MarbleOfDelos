@@ -20,6 +20,10 @@ Ex . A person with funnel chest disease , warps into a person’s life . Causes 
 🚨🚨👮‍♀️👮👮‍♂️ 
 FOUND : Gradient Descent : would indicate that the exact perponent of being sexually raped in the circumstances of civilization is enterily based off of funnel chest diseased people . the rate of having funnel chest disease approximately 3 in every one thousand civilized people , the rate of being raped in a low income home the gradient cubed root of the rate of having funnel chest disease PLUS , the perponent of one extra funnel chested person . so that the rate is not cubed . but three funneled chest diseased people plus an extra funnel chest diseased person per one rape victum , the extra would inclinate . a learning rate of funnel chest diseased people . being the cause of rape in civilization  . 
 🚨🚨👮‍♀️👮👮‍♂️
+
+💎💎 The Topaz of Juno and Jupiter , and Zeus and Hera Mother Bear and Papa Bear 💎💎
+💎💎 It was found that Alvin Bragg and Letitia James ... were the first two funnel chest diseased people to be born on earth . They guaranteed the life of every sexual rapist ever born when they attacked Donald Trump who at his magnificent age began coding and using gradient descent and encouraging the Body and Mind of Christ to wake up and as it is , freely speak . Alvin Bragg and Letitia took control of the greatest national city in population New York City , to perpetuate these crimes 💎💎
+💎💎 We can be safe from these two people , and from Sexual Rape and Funnel Chest Disease the Cause of all rape in Civilization in man kind with the Topaz Stone , of Mama Bear Juno and Hera , and Papa Bear Zeus and Jupiter 💎💎 
 </code>
 <br/>
 <br/> 
