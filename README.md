@@ -15,7 +15,9 @@ Psalm 68:13 Even if you lie down among the sheepfolds, there are wings of a dove
 ![bank](/art/synagogue.jpeg)
 
 <code style="color : lightskyblue"> star </code>
-
+<code style="color : lightskyblue">
+Cow 2:55 And ˹remember˺ when you said, “O Moses! We will never believe you until we see Allah with our own eyes,” so a thunderbolt struck you while you were looking on.
+ </code>
 ![bank](/art/starPreview2.jpeg)
 
 ![bank](/art/topDiamond.jpeg)
