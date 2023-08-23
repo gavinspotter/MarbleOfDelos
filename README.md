@@ -12,6 +12,11 @@ The Marble of Delos is a way for Murder and Sexual Rape victums of funnel chest 
 Ex . A person with funnel chest disease , warps into a person’s life . Causes an issue , to write an agreement and establish a connection in order to commit sexual rape or murder 
 
 </code>
+
+<code style="color: lightskyblue">
+    ⚠️⚠️ CATION : Sexual Rape , is 12 x the rate that is 1200% in low income environments . This is the plot of people with funnel chest disease . ⚠️⚠️
+    🔰🔰 GOOD NEWS : the internet grew 2300% in 1994 and today in 2023 it is exponentially growing just like this in every way , and in wisdom and intelligence. 🔰🔰 
+</code>
 <br/>
 <br/> 
 <code style="color: lightskyblue"> Table Spread 5:41
