@@ -7,7 +7,7 @@ Funnel Chest Disease Murder Sexual Rape Victum Island
 <br/> 
 <br/>
 <code style="color: lightskyblue">
-The Marble of Delos is a way for Murder and Sexual Rape victums of funnel chest diseased people to realize funnel chest diseased peoples propriety to destroy man and healthy man , in order to maintain its own reality and self worth . And to realize of Funnel Chest Diseased people denying logical circumstance of normal conversion . Which happened forever in time before Jesus Christ on the third day of his rising .
+The Marble of Delos is a way for Murder and Sexual Rape victums of funnel chest diseased people to realize funnel chest diseased peoples propriety to destroy man and healthy man , in order to maintain its own reality and self worth . And to realize Funnel Chest Diseased people denying logical circumstance of normal conversion . Which happened forever in time before Jesus Christ on the third day of his rising .
 
 </code>
 <br/>
