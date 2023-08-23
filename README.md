@@ -7,6 +7,11 @@ O Messenger! Do not grieve for those who race to disbelieve—those who say, “
 </code>
 <br/>
 <br/>
+🪞🦢🦢🦢🦢🦢🦢🦢🦢🦢🦢🦢🦢🦢🪞
+🪞🪞🪞🪞🪞🪞🪞🪞🪞🪞🪞🪞🪞🪞🪞
+⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️⚡️
+<br/>
+<br/>
 <code style="color: lightskyblue">
 Psalm 68:13 Even if you lie down among the sheepfolds, there are wings of a dove covered with silver; its pinions covered in precious gold.
 ‭‭</code>
