@@ -89,3 +89,5 @@ Revelation 2:17 Whoever has ears, let them hear what the Spirit says to the chur
 ![bank](/art/bottomTrianglePreview1.JPG)
 
 ![bank](/art/Bottomleftstar2.JPG)
+
+![bank](/art/BottomRightStar2.jpg)
