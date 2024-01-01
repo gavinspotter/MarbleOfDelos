@@ -69,6 +69,9 @@ Psalm 68:13 Even if you lie down among the sheepfolds, there are wings of a dove
 <br/>
 <br/>
 <code style="color : lightskyblue">
+<br/>
+Ojai Earthquake Squirtakoinelub Monument
+<br/>
 Cow 2:55 And ˹remember˺ when you said, “O Moses! We will never believe you until we see Allah with our own eyes,” so a thunderbolt struck you while you were looking on.
 </code>
 <br/>
@@ -77,6 +80,8 @@ Cow 2:55 And ˹remember˺ when you said, “O Moses! We will never believe you u
 Revelation 2:17 Whoever has ears, let them hear what the Spirit says to the churches. To the one who is victorious, I will give some of the hidden manna. I will also give that person a white stone with a new name written on it, known only to the one who receives it.
 </code>
 <br/>
+
+![bank](/art/ZeusCockMinaret.jpg)
 
 ![bank](/art/ZechariahStar.JPG)
 
